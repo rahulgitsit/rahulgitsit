@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Rahul, a cybersecurity student.
+- 👋 Hi, I’m Rahul.
